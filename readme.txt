@@ -1,1 +1,1 @@
-Merci d'uttiliser mon site internet
+Merci d'uttiliser mon site internet. Il est libre d'uttilisation et avec lui, vous pouvez donc vous émerveiller devant mes photos. N'hésitez pas à me faire une demande d'audiance pour plus d'informations
